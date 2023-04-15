@@ -12,7 +12,7 @@ The Green Helmet And Other Poems        1/21
 Responsibilities                        1/31
 The Wild Swans at Coole                 1/46
 Michael Robartes and the Dancer         1/15
-The Tower                               0/36
+The Tower                               1/36
 The Winding Stair and Other Poems       1/64
 Parnell's Funeral and Other Poems       0/17
 New Poems                               0/35
