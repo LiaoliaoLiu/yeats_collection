@@ -15,7 +15,7 @@ Michael Robartes and the Dancer         1/15
 The Tower                               1/36
 The Winding Stair and Other Poems       1/64
 Parnell's Funeral and Other Poems       0/17
-New Poems                               0/35
+New Poems                               1/35
 Last Poems                              1/19
 Poems from On the Boiler                0/3
 ```
