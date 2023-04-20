@@ -8,7 +8,7 @@ Crossways                               0/16
 The Rose                                0/23
 The Wind Among the Reeds                1/37
 In the Seven Woods                      1/14
-The Green Helmet And Other Poems        1/21
+The Green Helmet And Other Poems        2/21
 Responsibilities                        2/31
 The Wild Swans at Coole                 1/46
 Michael Robartes and the Dancer         1/15
